@@ -1,6 +1,7 @@
 ## Tailah's Blog 
 
-welcome to Tailah's Blog :) :/r/n
+welcome to Tailah's Blog :)
+
 who eager to fathom the logic in natural language. 
 
 
